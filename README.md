@@ -2,7 +2,7 @@
 🌟💎🔥  RAJESH TOOLS IS FREE  🔥💎🌟  
 ━━━━━━━━━━━━━━━━━━━━━━━  
 
-✨ Version : 7.8 ✅  
+✨ Version : 8.9 ✅  
 ⚡ Features : M1 •M2 • M3 • M4 • 🔥  
 
 ━━━━━━━━━━━━━━━━━━━━━━━  
