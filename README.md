@@ -1,9 +1,9 @@
 ━━━━━━━━━━━━━━━━━━━━━━━  
-🌟💎🔥  RAJESH TOOLS IS FREE  🔥💎🌟  
+🌟💎🔥  RAJESH TOOLS IS Paid 🔥💎🌟  
 ━━━━━━━━━━━━━━━━━━━━━━━  
 
-✨ Version : 8.9 ✅  
-⚡ Features : M1 •M2 • M3 • M4 • 🔥  
+✨ Version : 10.6 ✅  
+⚡ Features : M1 •M2 • M3 • M4 • M5 🔥  
 
 ━━━━━━━━━━━━━━━━━━━━━━━  
 📩 Feedback : Inbox 📨  
